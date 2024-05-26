@@ -1,1 +1,1 @@
-Yourbarf IA to clients
+Yourbarf AI to clients
